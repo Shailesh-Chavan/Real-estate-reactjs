@@ -12,5 +12,4 @@ Get to know our journey, mission, and values. We pride ourselves on connecting p
 Have questions? Reach out to us anytime through our easy-to-use contact form, email, or hotline. We're here to help with all your property needs.
 
 - Testimonials:
-
 Hear from our satisfied clients. Their experiences speak volumes about the trust and success we've built in the industry.
